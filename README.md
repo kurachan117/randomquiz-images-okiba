@@ -1,1 +1,0 @@
-# randomquiz-images-okiba
